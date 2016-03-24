@@ -1,1 +1,1 @@
-Fuck world hahah!
+wo c
